@@ -5,7 +5,7 @@
 
 - 🔭 I’m currently working on **Machine learning**
 
-- 📫 How to reach me **prateekrajsrivastav@gmail.com**
+- 📫 How to reach me **prateekrajsri@gmail.com**/**prateekrajsrivastav@gmail.com**
 
 - ⚡ Fun fact **I think I am kind hearted boy.**
 
